@@ -3,7 +3,7 @@
 
 Nicole Kidman Says Erotic Thriller ‘Babygirl’ Was ‘Very Freeing’ to Make: ‘I Didn’t Feel Exploited’
 
-## ✅👉[Watch Now](ttps://parade.today/noticias/thriller-babygirl-premiere-live-nicole-kidman-antonio-banderas/)
+## ✅👉 [Watch Now](ttps://parade.today/noticias/thriller-babygirl-premiere-live-nicole-kidman-antonio-banderas/)
 
 Nicole Kidman hopes her new erotic thriller, “Babygirl,” is a “liberating story” for women, as she found it “very freeing” to make.
 
